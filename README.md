@@ -1,2 +1,2 @@
-# julianawshiohara.github.io
+# Juliana Shiohara
 Portfólio
